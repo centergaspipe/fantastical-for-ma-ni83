@@ -1,4 +1,4 @@
-
+Enhance Fantastical for macOS with ultimate Fantastical for macOS Macro | note encryption + custom themes, the #1 macro. Includes note encryption and custom themes for a smoother
 
 
 
